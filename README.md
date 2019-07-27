@@ -1,10 +1,10 @@
 AV狼最新地址
 
-http://www.avlang1.co
+http://g.avlang1.co
 
-http://www.avlang2.co
+http://g.avlang2.co
 
-http://www.avlang3.co
+http://g.avlang3.co
 
 永久域名:www.avlang.com(海外)
 
